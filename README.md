@@ -1,1 +1,0 @@
-"# Surgut-Koshevoy" 
